@@ -1,0 +1,1 @@
+# 4k-ayt-tam-tekrar-sayisal-kimya-32
